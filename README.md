@@ -1,3 +1,4 @@
+<h2 style="text-align: center;"><strong>BEFORE you waste time, i'm a <em>mentally ill</em> person. i'm going through a healing by coping. if you're not comfortable by my coping method, just DNI. you'll be fine, i'm not important to you. i will answer in a rude manner if you decide to be rude to me, it's better to just <em>NOT</em> engage. i know what i consume and i'm actively trying to get away from it. this is my account, those are my skins, just avoid me if it's not for you. if you waste your time trying to give me moral lessons then you're just stupid. it's the internet, you'll be fine.</strong></h2>
 <p><strong>Hi, I'm $${\color{red}REB}$$ I also go as $${\color{red}Tyoma}$$,</em></strong></p>
 <p><strong>I'm $${\color{red}18}$$, norsk-latino &amp; usually around docks,</strong></p>
 <p><strong>If you need more information about me, there's</strong></p>
