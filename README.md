@@ -7,7 +7,7 @@
 <p><strong>not to argue w/me because I simply don't</strong></p>
 <p><strong>care about <em>online morality discourse.</em></strong></p>
 <p><strong><img src="https://rebelsdump.carrd.co/assets/images/image02.gif?v=2cf0d522" alt="" width="64" height="36" /><img src="https://rebelsdump.carrd.co/assets/images/image01.png?v=2cf0d522" alt="" width="62" height="35" /><img src="https://rebelsdump.carrd.co/assets/images/image21.png?v=2cf0d522" alt="" width="62" height="35" /><img src="https://rebelsdump.carrd.co/assets/images/image23.gif?v=2cf0d522" alt="" width="62" height="35" /></strong></p>
-<p style="text-align: left;"><strong>heres my&nbsp;<a href="https://dylricrapee.straw.page/">straw</a>&nbsp;&amp;&nbsp;<a href="https://rebdoom.atabook.org/">ata</a>&nbsp;&amp;&nbsp;<a href="https://www.patreon.com/cw/rebsylph">patreon</a></strong></p>
+<p style="text-align: left;"><strong>heres my&nbsp;<a href="https://dylricrapee.straw.page/">straw</a>&nbsp;&amp;&nbsp;<a href="https://rebdoom.atabook.org/">ata</a>&nbsp;&amp;&nbsp;<a href="https://rentry.co/RREBDOOM">rentry</a></strong></p>
 <p align="center"><strong><img src="https://media1.tenor.com/m/7dNY9Czv1qkAAAAC/kmfdm-megalomaniac.gif" alt="" width="256" height="64" /></strong></p>
 </blockquote>
 <p style="text-align: center;"><strong>Here you have some good music! :-)</strong></p>
