@@ -13,7 +13,7 @@ REB/Tyoma ; Dockie ; Norsk-Latino ; <strong>18yo</strong> ; READ SITES BYI!
 <Img src="https://rebelsdump.carrd.co/assets/images/image02.gif?v=dba80918"> <Img src="https://rebelsdump.carrd.co/assets/images/image01.png?v=dba80918"> <Img src="https://rebelsdump.carrd.co/assets/images/image21.png?v=dba80918"> <Img src="https://rebelsdump.carrd.co/assets/images/image23.gif?v=dba80918">
 
 
-𓆩 <a href="https://dylricrapee.straw.page/">straw</a>  ♱ <a href="https://rebdoom.atabook.org/">ata</a> ♱ <a href="https://rentry.co/RREBDOOM">rentry</a>𓆪
+𓆩 <a href="https://dylricrapee.straw.page/">straw</a>  ♱ <a href="https://rebdoom.atabook.org/">ata</a> ♱ <a href="https://rentry.co/rrebthejuvey">rentry</a>𓆪
 
 
  ㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
