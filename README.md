@@ -2,7 +2,7 @@
  <Div Align = Center>
   <Img src="https://i.postimg.cc/7L37WcNY/image.png">
 
-  <img width="1200" height="700" alt="penis" src="https://rebelsdump.carrd.co/assets/images/image37.jpg?v=f893bb70" />
+  <img width="1200" height="600" alt="penis" src="https://rebelsdump.carrd.co/assets/images/image37.jpg?v=f893bb70" />
  ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ 
 <Img src="https://i.postimg.cc/nLSZpV2k/image.png">
 
